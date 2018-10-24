@@ -40,7 +40,7 @@ Deze en soortgelijke bedrijven gaan zeer sluw te werk, zo maken ze gebruik van d
 
 Alleen samen kunnen we iets beginnen tegen deze praktijken. We verzamelen daarom contactgegevens van gedupeerden.
 
-Doe nu mee, laat hier je contactgegevens achter: https://witgoed-oplichting.typeform.com/to/LpGBt9
+Doe nu mee, laat hier je contactgegevens achter: [https://witgoed-oplichting.typeform.com/to/LpGBt9](https://witgoed-oplichting.typeform.com/to/LpGBt9)
 
 Eerst moeten we voldoende casussen verzamelen die op elkaar lijken. Gelukkig gaat deze partij erg methodisch te werk, dus dat hoeft niet zo moelijk te zijn. We gaan uiteraard vertrouwelijk met je informatie om en zullen je alleen benaderen wanneer we klaar zijn om stappen te maken.
 
