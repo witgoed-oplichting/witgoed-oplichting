@@ -45,10 +45,10 @@ Doe nu mee, laat hier je contactgegevens achter: https://witgoed-oplichting.type
 Eerst moeten we voldoende casussen verzamelen die op elkaar lijken. Gelukkig gaat deze partij erg methodisch te werk, dus dat hoeft niet zo moelijk te zijn. We gaan uiteraard vertrouwelijk met je informatie om en zullen je alleen benaderen wanneer we klaar zijn om stappen te maken.
 
 ## Wat u verder kunt doen:
-* Neem contact op met fraudehelpdesk.nl (088-7867372)
-* Neem ook contact op met Consuwijzer. (088-0707070) Zij overleggen meldingen met ACM, die op hun beurt dan weer veel meer ruimte hebben om te handelen tegen dit soort partijen.
-* Doe melding bij opgelicht, dat kan hier door aan de rechterkant bij "Ook gedupeerd?" op de link te klikken
-Wanneer bovenstaande websites veel reacties ontvangen, wordt de kans groter dat de bovenstaande mensen gestraft zullen worden voor deze praktijken.
+* Neem contact op met [fraudehelpdesk.nl](fraudehelpdesk.nl) (088-7867372)
+* Neem ook contact op met [Consuwijzer](http://consuwijzer.nl). (088-0707070) Zij overleggen tevens meldingen met ACM, die op hun beurt dan weer veel meer ruimte hebben om te handelen tegen dit soort partijen.
+* Doe melding bij opgelicht, [dat kan hier](https://opgelicht.avrotros.nl/dossiers/item/9577) door aan de rechterkant bij "Ook gedupeerd?" op de link te klikken
+Wanneer deze websites veel reacties ontvangen is de kans groter dat deze praktijken in de publiciteit komen en vervolgd gaan worden.
 
 ## Uitzending van 'Opgelicht?!' en vorige generaties van deze oplichtingsvorm
 
