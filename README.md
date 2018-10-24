@@ -54,7 +54,7 @@ Wanneer bovenstaande websites veel reacties ontvangen, wordt de kans groter dat 
 
 Een vorige generate van deze malafide praktijken bestond in de vorm van De Witgoed Expert. Daar stond een enkele persoon aan het hoofd. Het lijkt erop dat deze partij [het inmiddels opgegeven heeft](https://www.faillissementsdossier.nl/nl/faillissement/1370838/de-witgoedexpert.aspx).
 
-'Opgelicht?!' heeft in 2017 een uitzending gedaan over De Witgoed Expert. Daar is [https://opgelicht.avrotros.nl/dossiers/item/9577](hier meer over te lezen), en de uitzending is [https://www.dumpert.nl/mediabase/7108965/256caf54/oplichtende_wasmachinemonteur_busted.html](hier terug te kijken).
+'Opgelicht?!' heeft in 2017 een uitzending gedaan over De Witgoed Expert. Daar is [hier meer over te lezen](https://opgelicht.avrotros.nl/dossiers/item/9577) en de uitzending is [hier terug te kijken](https://www.dumpert.nl/mediabase/7108965/256caf54/oplichtende_wasmachinemonteur_busted.html)
 
 De handelswijze van toen lijkt sterk op de huidige handelswijze, met een paar opmerkelijke verschillen:
  * Uitgebreide structuur van holdings en B.V's
