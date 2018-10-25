@@ -1,6 +1,6 @@
 # Heeft u witgoed laten 'repareren' voor 59 euro ex. btw?
 
-Het is mogelijk dat u slachtoffer bent van een gelikte oplichtingsmachine. Er lopen onderzoeken en juridische trajecten tegen deze partijen, maar er zijn meer casussen nodig om effectief te vervolgen. Wij zijn daarom op zoek naar andere gedupeerden.
+Het is mogelijk dat u slachtoffer bent van een ogenschijnlijk gelikte oplichtingsmachine. Er lopen onderzoeken en juridische trajecten tegen deze partijen, maar er zijn meer casussen nodig om effectief te vervolgen. Wij zijn daarom op zoek naar andere gedupeerden.
 
 [Laat uw gegevens achter!](https://witgoed-oplichting.typeform.com/to/LpGBt9)
 
