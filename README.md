@@ -17,9 +17,9 @@ Is iets het volgende op u van toepassing?
 
 In sommige gevallen gaat het betreffende bedrijf tóch over tot reparatie. In vrijwel alle gevallen wordt er dan slecht werk geleverd, met tweedehands onderdelen en eindigt de machine op de schroothoop.
 
-## Meer informatie over deze bedrijven
+## Informatie over de bedrijven die deze of soortgelijke praktijken inzetten
 
-Het gaat hier om de bedrijven:
+Lijst met bedrijven:
  * Dijk Witgoed B.V.
  * Witgoed Hulplijn B.V.
  * Witgoed Brigadier B.V.
