@@ -45,6 +45,7 @@ Doe nu mee, laat hier je contactgegevens achter: [https://witgoed-oplichting.typ
 Eerst moeten we voldoende casussen verzamelen die op elkaar lijken. Gelukkig gaat deze partij erg methodisch te werk, dus dat hoeft niet zo moelijk te zijn. We gaan uiteraard vertrouwelijk met je informatie om en zullen je alleen benaderen wanneer we klaar zijn om stappen te maken.
 
 ## Wat u verder kunt doen:
+* Doe aangifte. De politie is verplicht om uw aangifte op te nemen. U kunt als argument opvoeren dat er veel andere meldingen zijn van deze vorm van oplichting, en dat het daarom niet om een civiele zaak gaat. Dit valt bij de politie in de categorie 'overige horizontale fraude'. U kunt aangifte doen door te bellen met de Politie op 0900-8844 en een afspraak te maken om aangifte te doen. Stuur ons vervolgens het proces-verbaalnummer met [dit formulier](https://witgoed-oplichting.typeform.com/to/qkSBtR), dan voegen wij uw zaak toe aan het onderzoek.
 * Neem contact op met [fraudehelpdesk.nl](fraudehelpdesk.nl) (088-7867372)
 * Neem ook contact op met [Consuwijzer](http://consuwijzer.nl). (088-0707070) Zij overleggen tevens meldingen met ACM, die op hun beurt dan weer veel meer ruimte hebben om te handelen tegen dit soort partijen.
 * Doe melding bij opgelicht, [dat kan hier](https://opgelicht.avrotros.nl/dossiers/item/9577) door aan de rechterkant bij "Ook gedupeerd?" op de link te klikken
