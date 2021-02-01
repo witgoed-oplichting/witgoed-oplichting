@@ -128,6 +128,6 @@ Als deze partijen vaker melding krijgen van dit soort praktijken is het waarschi
 
 ## Wie is de beheerder van deze pagina?
 
-Ik ben zelf ook gedupeerde en wilde hier iets tegen ondernemen. Via deze pagina wilde ik aangiftes verzamelen om een juridisch traject in gang te zetten. Helaas is me inmiddels duidelijk geworden dat zo'n traject weinig kans van slagen heeft, en wil ik zelf ook niet in de publiciteit treden met zo'n initiatief. Voor nu kan deze pagina dienen als een centrale bron van informatie.
+Ik ben zelf ook gedupeerde en wilde hier iets tegen ondernemen. Via deze pagina wilde ik aangiftes verzamelen om een juridisch traject in gang te zetten. Helaas is me inmiddels duidelijk geworden dat zo'n traject weinig kans van slagen heeft. Op individuele basis lukt het zo nu en dan om geld terug te vorderen, maar een collectief initiatief zal stranden in de minnelijke fase. Voor nu kan deze pagina dienen als een centrale bron van informatie.
 
 Contact met mij opnemen kan via deze link: [https://witgoed-oplichting.typeform.com/to/qkSBtR](https://witgoed-oplichting.typeform.com/to/qkSBtR)
