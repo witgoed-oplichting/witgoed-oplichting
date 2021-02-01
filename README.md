@@ -2,8 +2,6 @@
 
 Het is waarschijnlijk dat u slachtoffer bent geworden van een ogenschijnlijk gelikte oplichtingsmachine.
 
-[Doe aangifte](#wat-kan-ik-doen)
-
 ## Herkent u dit patroon?
 
 - U heeft een kapot stuk huishoudelijke apparatuur en wilde dit laten repareren. Op Google kwam u terecht bij een bedrijf met snelle service en goede telefonische bereikbaarheid, ook op zondag.
@@ -20,9 +18,9 @@ Reparaties die toch uitgevoerd worden, gebeuren met slechte onderdelen en in de 
 
 Deze partij is al meerdere keren door Opgelicht?! in de spotlights gezet. Helaas heeft dit verder nog geen aandacht gekregen van het OM. Hieronder de uitzendingen:
 
-- april 2017 - https://www.dumpert.nl/mediabase/7108965/256caf54/oplichtende_wasmachinemonteur_busted.html
-- 17 september 2019 - https://www.youtube.com/watch?v=MzkKUfmcw5E&feature=emb_title
-- 29 december 2020 - https://opgelicht.avrotros.nl/uitzending/gemist/item/is-aangifte-doen-van-oplichting-zinvol-opgelicht-neemt-enquete-af-onder-burgers-en-politieagenten/
+- april 2017 - [https://www.dumpert.nl/mediabase/7108965/256caf54/oplichtende_wasmachinemonteur_busted.html](https://www.dumpert.nl/mediabase/7108965/256caf54/oplichtende_wasmachinemonteur_busted.html)
+- 17 september 2019 - [https://www.youtube.com/watch?v=MzkKUfmcw5E&feature=emb_title](https://www.youtube.com/watch?v=MzkKUfmcw5E&feature=emb_title)
+- 29 december 2020 - [https://opgelicht.avrotros.nl/uitzending/gemist/item/is-aangifte-doen-van-oplichting-zinvol-opgelicht-neemt-enquete-af-onder-burgers-en-politieagenten/](https://opgelicht.avrotros.nl/uitzending/gemist/item/is-aangifte-doen-van-oplichting-zinvol-opgelicht-neemt-enquete-af-onder-burgers-en-politieagenten/)
 
 ## Wat kan ik doen?
 
@@ -44,7 +42,7 @@ We raden u aan om uw aangifte door te sturen naar het team van Opgelicht?!, zoda
 
 Als u aangifte gedaan heeft helpt het enorm om die aangifte door te sturen naar het team van Opgelicht?!.
 
-Dat kan via deze pagina: https://opgelicht.avrotros.nl/uitzending/oproepen/artikel/herken-jij-deze-monteurs-van-de-witgoedcentrale-oranje-witgoed-en-witgoedreparatie-van-dijk/
+Dat kan via deze pagina: [https://opgelicht.avrotros.nl/uitzending/oproepen/artikel/herken-jij-deze-monteurs-van-de-witgoedcentrale-oranje-witgoed-en-witgoedreparatie-van-dijk/](https://opgelicht.avrotros.nl/uitzending/oproepen/artikel/herken-jij-deze-monteurs-van-de-witgoedcentrale-oranje-witgoed-en-witgoedreparatie-van-dijk/)
 
 ## Statistieken
 
