@@ -62,8 +62,6 @@ Van de formulier inzendingen, was dit de verdeling tussen de bedrijfsnamen:
 
 33% gaf aan exact 71,39 of 72,6 euro betaald te hebben. 66% heeft een ander bedrag aangegeven, variërend van 59 euro tot 610 euro. Het gemiddelde was 149,9 euro.
 
-De 142 ingevulde formulieren hebben gezamelijk voor 20.097 euro schade geleden.
-
 De betaalmethode was zo verdeeld:
 
 - 9.2% betaalde contant
@@ -96,6 +94,8 @@ Maar er zijn ook een hoop andere diagnoses gesteld, waaronder:
 53% gaf aan dat er één monteur kwam, 36% gaf aan dat er twee monteurs kwamen.
 
 In 63% van de gevallen is er geen reparatie uitgevoerd, enkel een diagnose gesteld. Bij 6% was de machine beschadigd na het onderzoek.
+
+De 142 ingevulde formulieren hebben gezamelijk voor 20.097 euro schade geleden.
 
 ## Meer informatie over deze malafide bedrijven
 
